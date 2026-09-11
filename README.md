@@ -8,7 +8,7 @@ i usually just hang around in pt with my closefriends since thats where im most 
 
 pls ask for friend rq bcs i disabled it
 
-i dont really into dirty jokes if we just met or barely know each other (stranger). i dont befriend w someone whos problematic. pls dni if youre under that age we're probably not a good match as friends. c+h is okay though
+i dont really into dirty jokes if we just met or barely know each other (stranger). i dont befriend w someone whos problematic. 
 
 im 🇧🇳🇨🇦, mostly playing on safe idn servers. my indonesian isnt that good, and i still dont understand some words(i might ignore u) i prefer us to use eng to communicate /nf
 </div>
